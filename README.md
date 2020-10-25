@@ -1,0 +1,1 @@
+# QuarantineCorp.github.io
